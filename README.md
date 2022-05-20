@@ -1,5 +1,4 @@
-# Killers! Every single one of us!
-> Maybe not all of us killing in active, but most of us do kill in a passive way
+# Save the planet
 
 Dear Humans,
 
